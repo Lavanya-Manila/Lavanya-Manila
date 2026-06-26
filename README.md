@@ -31,7 +31,7 @@
 
 ## 📫 Connect with Me
 
-- GitHub: https://github.com/your-username
-- LinkedIn: Add your LinkedIn profile here
+- GitHub: https://github.com/Lavanya-Manila
+- LinkedIn: https://www.linkedin.com/in/lavanya-s-49a985364/
 
 ⭐ Thanks for visiting my profile!
